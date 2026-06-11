@@ -1,18 +1,18 @@
 <a href="https://win-money.click/?brand=AmigoSlots&source=github.com" target="_blank">
-<img width="317" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Amigo%20Slots-E91E63?style=flat" />
+<img width="530" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Amigo%20Slots-FF1493?style=for-the-badge" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=AmigoSlots&source=github.com" target="_blank">
-<img width="188" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Amigo%20Slots-E91E63?style=flat" />
+<img width="316" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Amigo%20Slots-FF1493?style=for-the-badge" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=AmigoSlots&source=github.com" target="_blank">
-<img width="220" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Amigo%20Slots-E91E63?style=flat" />
+<img width="370" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Amigo%20Slots-FF1493?style=for-the-badge" />
 </a>
 
-![Amigo Slots](334-3537.png)
+![Amigo Slots](33-3127.png)
 
 <h2>Amigo Slots: Актуальное Зеркало для Бесперебойного Доступа 🎰</h2>
 <p>В условиях постоянно меняющегося ландшафта онлайн-гемблинга, наличие надежного доступа к любимым игровым платформам является первостепенной задачей, и рабочее зеркало Amigo Slots выступает как ключ к такому доступу.</p>
@@ -155,4 +155,3 @@ FAQ: Ваши вопросы об Amigo Slots 🎰
 </ul>
 
 [Open website](https://win-money.click/?brand=AmigoSlots&source=github.com)
-
